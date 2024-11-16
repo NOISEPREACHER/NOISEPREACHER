@@ -1,1 +1,1 @@
-![]((https://files.catbox.moe/gvj5rv.png "gerardwaymii")
+![gerardwaymii](https://files.catbox.moe/gvj5rv.png)
